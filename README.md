@@ -1,5 +1,4 @@
-### Hi there 👋
-Wsp
+### WSP 👋
 - Im working on my first video game 🎮
 - Pronouns He/Him 👦
 - Elite Gamer 🎮 💥
