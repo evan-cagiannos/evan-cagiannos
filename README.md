@@ -3,8 +3,8 @@ Wsp
 - Im working on my first video game 🎮
 - Pronouns He/Him 👦
 - Elite Gamer 🎮 💥
-- - Cats are best 👑 
-- - Contact info: Lord HTU#6008 (Discord)
+- Cats are best 👑 
+- Contact info: Lord HTU#6008 (Discord)
 <!--
 **evan-cagiannos/evan-cagiannos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
